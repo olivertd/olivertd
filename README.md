@@ -5,7 +5,7 @@ My name is DJ Boliver, I am currently working a top paying job as CEO of SELK CA
 <p align="center">
   <a href="https://twitter.com/elonmusk%22%3E - THE CREATIVE GENIOUS HIMSELF</a>
   <br><br>
-  <img src="https://munchiesstreetfood.se/wp-content/uploads/2021/03/Joe-Rogan-Experience-1470-Elon-Musk_1.gif"
+  <img src="https://munchiesstreetfood.se/wp-content/uploads/2021/03/Joe-Rogan-Experience-1470-Elon-Musk_1.gif
 </p>
 
 
