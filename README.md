@@ -10,5 +10,5 @@
   
 <br><br>
 <p align="center">
-  The Loop of Time loops, and ages come and pass, leaving memories that become legend. Legends fade to myth, and even myth is long forgotten when the Age that gave it birth comes again. In one Age, called the third age by some, an Age yet to come, an age long pass, a wind rose in the Mountains of Mist. The wind was not the beginning. There are neither beginnings or endings to the looping of the Loop of Time. But it was a beginning.
+  "The Loop of Time loops, and ages come and pass, leaving memories that become legend. Legends fade to myth, and even myth is long forgotten when the Age that gave it birth comes again. In one Age, called the third age by some, an Age yet to come, an age long pass, a wind rose in the Mountains of Mist. The wind was not the beginning. There are neither beginnings or endings to the looping of the Loop of Time. But it was a beginning." - Elon Bezos
   </p>
