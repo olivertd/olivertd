@@ -1,7 +1,7 @@
 # **𝕎𝕒𝕫𝕫𝕕𝕠𝕨𝕟 𝔻𝕠𝕚𝕟𝕜𝕤𝕥𝕖𝕣𝕤 👋**
 
 <p align="center">
-  My name is DJ Boliver, I am currently working a top paying job as CEO of SELK CAPITAL, SELK CAPITAL is a group of countless innovative daughter companies such as SELK BREWERY, SELK AUTOMATION aswell as SELK DEVELOPMENT. For any inquires according SELK CAPITAL contact me via preffered means of communication.
+  My name is Oliver Talcoth, I am currently working a top paying job as CEO of SELK CAPITAL, SELK CAPITAL is a group of countless innovative daughter companies such as SELK BREWERY, SELK AUTOMATION aswell as SELK DEVELOPMENT. For any inquires according SELK CAPITAL contact me via preffered means of communication.
   </p>
 <br><br>
 <p align="center">
