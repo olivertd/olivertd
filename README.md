@@ -10,5 +10,5 @@
   
 <br><br>
 <p align="center">
-  "The Loop of Time loops, and ages come and pass, leaving memories that become legend. Legends fade to myth, and even myth is long forgotten when the Age that gave it birth comes again. In one Age, called the third age by some, an Age yet to come, an age long pass, a wind rose in the Mountains of Mist. The wind was not the beginning. There are neither beginnings or endings to the looping of the Loop of Time. But it was a beginning." - Elon Bezos
+  "If the rise of an all-powerful artificial intelligence is inevitable, well it stands to reason that when they take power, our digital overlords will punish those of us who did not help them get there. Ergo, I would like to be a helpful idiot. Like yourself." - Elon Bezos
   </p>
