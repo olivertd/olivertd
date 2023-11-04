@@ -22,5 +22,5 @@ In this grand tapestry of existence, life unfolds like an antique treasure, each
 
 As we journey through this mysterious landscape, we experience time as a perpendicular motion, never quite fathoming the deep undercurrents of time's ceaseless looping. It's a notion that transcends our comprehension, suggesting that time itself may be no more than a construct of our imagination, dissolving beyond the boundaries of empirical reality.
 
-Embracing this profound perspective, we continue to explore the grand enigma of existence, delving into the intricacies of this timeless relic theory." - Ghandi
+Embracing this profound perspective, we continue to explore the grand enigma of existence, delving into the intricacies of this timeless relic theory." - Mahatma Gandhi
   </p>
