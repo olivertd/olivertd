@@ -16,5 +16,11 @@ Hailing from the vibrant city of Gothenburg, Sweden, I'm on a perpetual quest to
   
 <br><br>
 <p align="center">
-  "If the rise of an all-powerful artificial intelligence is inevitable, well it stands to reason that when they take power, our digital overlords will punish those of us who did not help them get there. Ergo, I would like to be a helpful idiot. Like yourself." - Elon Bezos
+  "Exploring the profound theory that life itself is a timeless relic, existing in a perpetual loop. It's as if we're glimpsing the echoes of existence, where the past, present, and future intertwine in a mesmerizing dance.
+
+In this grand tapestry of existence, life unfolds like an antique treasure, each moment a precious gem within a labyrinth of interconnected loops. Whether it's the ephemeral loops of a single heartbeat or the intricate loops that encapsulate an entire lifetime, we're but passengers on this eternal carousel.
+
+As we journey through this mysterious landscape, we experience time as a perpendicular motion, never quite fathoming the deep undercurrents of time's ceaseless looping. It's a notion that transcends our comprehension, suggesting that time itself may be no more than a construct of our imagination, dissolving beyond the boundaries of empirical reality.
+
+Embracing this profound perspective, we continue to explore the grand enigma of existence, delving into the intricacies of this timeless relic theory." - Ghandi
   </p>
