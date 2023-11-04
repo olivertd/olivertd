@@ -1,4 +1,4 @@
-# **𝕎𝕒𝕫𝕫𝕕𝕠𝕨𝕟 𝔻𝕠𝕚𝕟𝕜𝕤𝕥𝕖𝕣𝕤 👋**
+# **𝕎𝕒𝕫𝕫𝕕𝕠𝕨𝕟 𝕃𝕦𝕞𝕚𝕟𝕒𝕣𝕪 𝔸𝕣𝕔𝕙𝕚𝕥𝕖𝕔𝕥𝕤 👋**
 
 <p align="center">
 Greetings, I'm Oliver Talcoth, an enthusiastic explorer in the digital realm, perpetually fueled by the thrill of learning and the art of rapid mastery. My technical repertoire encompasses the rich tapestry of Backend and Frontend development, the finesse of scripting, and the wizardry of web scraping with Chromium and PDF sorcery. Linux development is my digital playground, where I sculpt innovative solutions.
